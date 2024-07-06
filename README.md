@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **siddharth.tyagi2021@vitbhopal.ac.in**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1sLf8jlUexIKL0iLSbegYoUV9ksih4BRc/view?usp=sharing
+- 📄 Know about my experiences https://drive.google.com/file/d/1NxBxssjR6ZrrhpXwkSbK_K3s755eZA8P/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
